@@ -1,4 +1,4 @@
-### He received the B.S degree in Electronic and Information Engineering from Anhui Agricultural University, Hefei, Anhui, China, in 2017. He is currently pursuing the master degree in signal and information processing at Hefei University of Technology. 
+### I received the B.S degree in Electronic and Information Engineering from Anhui Agricultural University, Hefei, Anhui, China, in 2017. I'm currently pursuing the master degree in signal and information processing at Hefei University of Technology. 
 
 
 ### Research Interests
